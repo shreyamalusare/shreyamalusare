@@ -8,7 +8,6 @@ I believe that beauty comes in many forms—inside and out. 💖✨ Whether it's
 
 ## 💅 Fun Facts
 - I'm **beautiful inside and out** 🌟
-- Love experimenting with new trends (in fashion or code!) 👗👾
 - Always up for a challenge 💪
 
 ## 🌷 Skills
